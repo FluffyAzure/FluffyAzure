@@ -1,2 +1,14 @@
-hi i'm bad at coding
-pfp base by https://deviantart.com/panicpuppy
+        _
+       / \      _-'
+     _/|  \-''- _ /
+__-' { |          \
+    /             \
+    /       "o.  |o }
+    |            \ ;
+                  ',
+       \_         __\
+         ''-_    \.//
+           / '-____'
+          /
+        _'
+      _-'
